@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @bhuwancrestha57
-- 👀 I’m interested in  Fron in Developer
+- 👀 I’m interested in  Front in Developer
 - 💞️ I’m looking to collaborate with a Software Company
 - 📫 How to reach me Facebook(https://www.facebook.com/bhuwan57/)
 
